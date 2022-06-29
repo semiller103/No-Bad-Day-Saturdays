@@ -9,3 +9,6 @@ knots
 
 
 just tryna be a captain tbh
+Keep the Culture alive!! 
+
+for ixta
